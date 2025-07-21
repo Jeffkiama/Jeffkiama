@@ -11,4 +11,4 @@ You can click the Preview link to take a look at your changes.
 I'm interested in learning and building web applications that help me earn for a living.
 I would like to build a blog where people can interact and share views.
 I'm looking to collaborate with gurus who will make my dream come true. 
-To reach me, ypu can call, WhatsApp @ 0726070882
+To reach me, you can call, WhatsApp @ 0795088695
